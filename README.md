@@ -1,8 +1,8 @@
  Seja mal vindo
 
 **Nicolas**
-Estou estudando na [Alura] (https://www.alura.com.br)
-Casca de bala mais amostradinho
+Estou estudando na [Alura] (https://www.alura.com.br),
+Casca de bala mais amostradinho,
 Assisto SKibidi Toilet nos tempos livres
 ![](https://media1.tenor.com/m/OeJ2StlAIEQAAAAd/bolacha-the-best.gif)
 
