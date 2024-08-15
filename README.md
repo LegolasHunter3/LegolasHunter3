@@ -15,4 +15,4 @@ Curso inglês na Washingtom Academy
 
 ![](https://media1.tenor.com/m/zxfAL2yMk2cAAAAC/homelander-devastated.gif)
 
- ![](https://media1.tenor.com/m/AlNs-oWn6FcAAAAd/sea-of-thieves-kiss.gif)
+![](https://media1.tenor.com/m/0jNW1wjPaKoAAAAd/lorenz-sea-of-thieves.gif)
