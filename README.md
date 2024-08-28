@@ -3,11 +3,17 @@
 **Nicolas**
 
 Estou estudando na [Alura] (https://www.alura.com.br)
+
 Tenho 15 anos
+
 Casca de bala mais amostradinho
+
 CCB
+
 Nasci e cresci em Astorga
+
 Violinista
+
 Curso inglês na Washingtom Academy
 
 
